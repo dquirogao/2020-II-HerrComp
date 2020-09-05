@@ -1,3 +1,7 @@
 Integrantes del grupo
 -asahsjfkf
--jdgkdfjlk
+-AAAAjdgkdfjlk
+Tareas
+-1 gufutu
+-2 vfobb
+lalalalalalala
